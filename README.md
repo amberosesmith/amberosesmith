@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @amberosesmith
+- 👀 I’m interested in ... medicine, physics, crytocurrency studies, building computers and keyboards, and more!
+- 🌱 I’m currently learning ... C++ as I apply for jobs post-grad.
+- 💞️ I’m looking to collaborate on ... anything! I am always open to a new learning opportunity. 
+- 📫 How to reach me ... via email: amberosesmith13@gmail.com 
